@@ -6,5 +6,5 @@ If you don't have the okokNotify script you need to change the notifications on 
 
 And you are ready to go :)
 
-If you need help contact me on discord: okok#3488
-My discord server: https://discord.gg/FauTgGRUku
+If you need help contact me on discord: Mayank#0001
+My discord server: https://discord.gg/finalstrikeroleplay
